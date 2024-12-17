@@ -1,3 +1,66 @@
+The key clip from Ross Coulthart:
+https://youtu.be/sucrnlxq8CA
+
+Ross Coulthart: "orbs and spheres are frequently reported... fighter pilots, active service... telling enigma the metallic spheres still continuing... consistent with what AARO told the Pentagon... between Dec. 2022- sept 2024, just under 2 years, total orb or sphere sightings were ad were submitted to the Enigma Skywatching network"
+
+----------------
+
+Ross Coulthart, 12/5/2024, "Video: Mysterious drones swarm military bases, New Jersey skies | Reality Check"
+https://youtu.be/sucrnlxq8CA
+
+YouTube transcript+gpt4o summary:
+https://x.com/richgel999/status/1867871163025637582
+
+Key Excerpts from this Reality Check episode:
+
+Enigma Labs recorded 6,226 orb sightings from Dec 2022 to Sept 2024, with 4,467 confirmed and 322 metallic. 
+
+Historical Context: Similar UAP incidents have been reported near nuclear
+weapons sites (e.g., Malmstrom AFB) and nuclear energy plants globally.
+
+Notable 2023-2024 Reports: 
+- May 2023: Silver sphere seen near Joint Base Lewis-McChord in Washington State.
+- June 4 & 12, 2024: Silent silver orbs spotted near Eglin AFB, Florida.
+- August 1, 2023: Metallic sphere sighted at Naval Air Station Joint Reserve Base in Fort Worth.
+
+- Dec. 15, 2024: 
+NJ, unknown town, flocking orbs - very similar to the Tremonton Film
+
+https://x.com/Truthpolex/status/1868792587299238168
+
+Dates & Locations: Reports have surged globally over the past 16-17 days,
+especially in the UK (RAF Lakenheath, RAF Feltwell), New Jersey, and the
+continental US. Germany also reported an incident on November 22, 2023,
+involving a 1.5m drone near HMS Queen Elizabeth in Hamburg.
+
+What‚Äôs Being Seen: Luminous orbs (orange, blue), triangular shapes, and metallic spheres.
+Sightings frequently occur between 15,000‚Äì28,000 ft.
+Metallic spheres lack visible propulsion, heat signatures, or seams.
+
+Handful of historical 1940's-50's orb-related reports and later events:
+
+- Mass orb sightings of the summer of 1947, during the peak of reports and the day before the Roswell announcement:
+7/6/1947, At 5:15 p.m. in Sioux Falls, South Dakota a silver orb shot toward the southwest "faster than any plane." It flew at an estimated altitude of ten thousand feet. 
+7/6/1947: PATERSON, NJ, Moon-size sphere/orb/globe skims along southwest going northwest.
+7/7/1947, Time: 15:30, PHOENIX, AZ, 80+observer(s)? 2 large silver orbs going quickly east. 1 high and 1 low. No wind. Photograph / grey ovoid.
+
+- 7/2/1952: "Tremonton Film" - 25G flocking orbs
+Chief Photographer, Commissioned Warrant Officer in the U.S. Navy, Delbert C. Newhouse
+Filmed at 11:00 AM MST, July 2nd, 1952 in the vicinity of Tremonton, Utah.
+The USAF's own analysis of the 1952 Tremonton Film showed objects which had accelerations in turns at up to 25G's.
+The US Navy Marine-Photo-Interpretation Laboratory spent over a thousand hours analyzing the film.
+
+Project Blue Book 16MM film:
+https://youtu.be/R5P6tk3jeVg
+
+- 7/5/1952: Hanford Atomic Works in Richland WA was overflown on 7/5 - in major media:
+https://www.nicap.org/520705hanford%5Fdir.htm
+
+- 7/28/1952: Jets at Washington Put on 24-hour Alert for 'Flying Saucers'. DC flap:
+https://www.newspapers.com/article/st-joseph-news-press-24-hour-alert/159405638/
+
+----------------
+
 Updated list of international/US air bases or sensitive sites which have reported
 unusual airspace activity, "drone" incursions, have had airspace shut downs, or
 reported highly unusual security related events:
@@ -6,9 +69,9 @@ reported highly unusual security related events:
 incursions 12/3-12/4, reported on 12/16/2024:
 https://www.nbcnews.com/news/world/drones-seen-near-us-bases-uk-air-force-rcna181971
 https://www.stripes.com/branches/air_force/2024-12-16/drone-activity-ramstein-16181733.html
-ìThe number of systems has fluctuated, and they have ranged in sizes and
-configurations,î the 86th Airlift Wing said in a statement Monday, adding that
-there were ìno impacts to base residents, facilities or assets.î
+‚ÄúThe number of systems has fluctuated, and they have ranged in sizes and
+configurations,‚Äù the 86th Airlift Wing said in a statement Monday, adding that
+there were ‚Äúno impacts to base residents, facilities or assets.‚Äù
 
 - RAF Lakenheath, AF Fairford and RAF Mildenhall, RAF Feltwell 
 NBC News, 11/27/2024: 
@@ -62,7 +125,7 @@ https://x.com/TheTriggerTrade/status/1867623265469878479,
 - Dec. 13: Andrews AFB 
 12/12/2024: https://x.com/LeslieLinnie/status/1867422666279579846
 
-- Ft. Dix/Joint Base McGuireñDixñLakehurst NJ
+- Ft. Dix/Joint Base McGuire‚ÄìDix‚ÄìLakehurst NJ
 
 12/6/2024: https://x.com/tparon/status/1865173649747017795
 12/14/2024: https://x.com/clovis1931/status/1867883755291250777
@@ -74,7 +137,7 @@ Recently received reports from witnessed via DM:
 ex-USAF (1983-2003), 20 years, Ronald Bilak, DD214 provided, address of event and home address provided
 
 - LLNL - nearby, local witnesses, videos
-ì12/10/2024 - Livermore, California about 3 to 4 miles from LLNL -
+‚Äú12/10/2024 - Livermore, California about 3 to 4 miles from LLNL -
 drone size of a small jet moving in one direction at a lower altitude and slower
 speed than an airplane, lights at four points including a red blinking light.
 
@@ -88,7 +151,9 @@ Sept. 2024 reports:
 https://x.com/DanIslandiaus1/status/1867743379464843588
 
 
--- Misc:
+---------
+
+Misc:
 
 - posted 12/12/2024: BREAKING -An alleged  Glowing orb /Drone /Uap flies by Miami South Beach, Miami balcony a few hours ago.
 It is hard to pull something like this. This is mind boggling.
