@@ -39,7 +39,8 @@ What’s Being Seen: Luminous orbs (orange, blue), triangular shapes, and metall
 Sightings frequently occur between 15,000–28,000 ft.
 Metallic spheres lack visible propulsion, heat signatures, or seams.
 
-Handful of historical 1940's-50's orb-related reports and later events:
+Handful of historical 1940's-50's orb-related reports and later events
+----------------------------------------------------------------------
 
 - Mass orb sightings of the summer of 1947, during the peak of reports and the day before the Roswell announcement:  
 7/6/1947, At 5:15 p.m. in Sioux Falls, South Dakota a silver orb shot toward the southwest "faster than any plane." It flew at an estimated altitude of ten thousand feet.   
