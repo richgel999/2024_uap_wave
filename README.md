@@ -1,4 +1,4 @@
-From Richard Geldreich, Jr.:
+From Richard Geldreich, Jr.:  
 "Drones" are important but a distraction. They key differentiator that this is a classic-type of UAP flap are the glowing or metallic orbs, sometimes showing flocking behavior.
 
 The key clip from Ross Coulthart:  
@@ -189,8 +189,5 @@ https://x.com/richgel999/status/1866271558525730921
 - Ring camera footage
 https://x.com/TheDeep_State6/status/1866891463080153587
 
-Source: 
-@oeav_
-Location: ??New Jersey USA ????
-Motion detected on door cam and started recording..
+Source: @oeav_, Location: ??New Jersey USA ????, "Motion detected on door cam and started recording.."
 
