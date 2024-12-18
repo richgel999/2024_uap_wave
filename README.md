@@ -1,6 +1,8 @@
 From Richard Geldreich, Jr. (please forgive the formatting, this is a very raw/early report):  
 "Drones" are important but a distraction. They key differentiator that this is a classic-type of UAP flap are the glowing or metallic orbs, sometimes showing flocking behavior.
 
+Note: If a URL goes stale, try the archive.ph snapshot.
+
 The key clip from Ross Coulthart:  
 https://youtu.be/sucrnlxq8CA
 
