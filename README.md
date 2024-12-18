@@ -53,8 +53,13 @@ Filmed at 11:00 AM MST, July 2nd, 1952 in the vicinity of Tremonton, Utah.
 The USAF's own analysis of the 1952 Tremonton Film showed objects which had accelerations in turns at up to 25G's.  
 The US Navy Marine-Photo-Interpretation Laboratory spent over a thousand hours analyzing the film.  
 
-Project Blue Book 16MM film:  
+Project Blue Book 16MM film (low-ish quality) with interview:  
+https://youtu.be/wH4xofCFFkA
+
 https://youtu.be/R5P6tk3jeVg
+
+Frame:  
+![image](https://github.com/user-attachments/assets/85c8d0d5-c3f8-4736-a2bb-73c3b68fda35)
 
 - 7/5/1952: Hanford Atomic Works in Richland WA was overflown on 7/5 - in major media:  
 https://www.nicap.org/520705hanford%5Fdir.htm
