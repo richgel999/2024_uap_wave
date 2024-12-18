@@ -29,7 +29,9 @@ Notable 2023-2024 Reports:
 - August 1, 2023: Metallic sphere sighted at Naval Air Station Joint Reserve Base in Fort Worth.  
 
 - Dec. 15, 2024: 
-NJ, unknown town, flocking orbs - very similar to the Tremonton Film
+NJ, unknown town, flocking orbs - very similar to the Tremonton Film:
+
+![image](https://github.com/user-attachments/assets/6e005733-23a8-4173-9192-ea309daa9e30)
 
 https://x.com/Truthpolex/status/1868792587299238168
 
