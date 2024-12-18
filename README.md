@@ -1,3 +1,4 @@
+From Richard Geldreich, Jr.:
 "Drones" are important but a distraction. They key differentiator that this is a classic-type of UAP flap are the glowing or metallic orbs, sometimes showing flocking behavior.
 
 The key clip from Ross Coulthart:  
@@ -183,7 +184,7 @@ https://x.com/Truthpolex/status/1867195871521034450
 
 - Facebook
 Dec. 8 - Orb near High Point NJ. Orbs seem to be very active according to witnesses.
-https://x.com/search?q=orb%20from%3Arichgel999&src=typed_query
+https://x.com/richgel999/status/1866271558525730921
 
 - Ring camera footage
 https://x.com/TheDeep_State6/status/1866891463080153587
