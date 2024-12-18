@@ -1,14 +1,16 @@
-The key clip from Ross Coulthart:
+"Drones" are important but a distraction. They key differentiator that this is a classic-type of UAP flap are the glowing or metallic orbs, sometimes showing flocking behavior.
+
+The key clip from Ross Coulthart:  
 https://youtu.be/sucrnlxq8CA
 
-Ross Coulthart: "orbs and spheres are frequently reported... fighter pilots, active service... telling enigma the metallic spheres still continuing... consistent with what AARO told the Pentagon... between Dec. 2022- sept 2024, just under 2 years, total orb or sphere sightings were ad were submitted to the Enigma Skywatching network"
+Ross Coulthart: "orbs and spheres are frequently reported... fighter pilots, active service... telling enigma the metallic spheres still continuing... consistent with what AARO told the Pentagon... between Dec. 2022- sept 2024, just under 2 years, total orb or sphere sightings that were submitted to the Enigma Skywatching network.."
 
 ----------------
 
-Ross Coulthart, 12/5/2024, "Video: Mysterious drones swarm military bases, New Jersey skies | Reality Check"
+Ross Coulthart, 12/5/2024, "Video: Mysterious drones swarm military bases, New Jersey skies | Reality Check"  
 https://youtu.be/sucrnlxq8CA
 
-YouTube transcript+gpt4o summary:
+YouTube transcript+gpt4o summary:  
 https://x.com/richgel999/status/1867871163025637582
 
 Key Excerpts from this Reality Check episode:
@@ -18,10 +20,10 @@ Enigma Labs recorded 6,226 orb sightings from Dec 2022 to Sept 2024, with 4,467 
 Historical Context: Similar UAP incidents have been reported near nuclear
 weapons sites (e.g., Malmstrom AFB) and nuclear energy plants globally.
 
-Notable 2023-2024 Reports: 
-- May 2023: Silver sphere seen near Joint Base Lewis-McChord in Washington State.
-- June 4 & 12, 2024: Silent silver orbs spotted near Eglin AFB, Florida.
-- August 1, 2023: Metallic sphere sighted at Naval Air Station Joint Reserve Base in Fort Worth.
+Notable 2023-2024 Reports:   
+- May 2023: Silver sphere seen near Joint Base Lewis-McChord in Washington State.  
+- June 4 & 12, 2024: Silent silver orbs spotted near Eglin AFB, Florida.  
+- August 1, 2023: Metallic sphere sighted at Naval Air Station Joint Reserve Base in Fort Worth.  
 
 - Dec. 15, 2024: 
 NJ, unknown town, flocking orbs - very similar to the Tremonton Film
@@ -160,7 +162,7 @@ It is hard to pull something like this. This is mind boggling.
 -Jessica Leigh
 https://x.com/Truthpolex/status/1867195871521034450
 
-- facebook
+- Facebook
 Dec. 8 - Orb near High Point NJ. Orbs seem to be very active according to witnesses.
 https://x.com/search?q=orb%20from%3Arichgel999&src=typed_query
 
@@ -171,4 +173,19 @@ Source:
 @oeav_
 Location: ??New Jersey USA ????
 Motion detected on door cam and started recording..
+
+------
+
+Key NJ Time lapse videos that showed up during the late 2024 UAP wave:
+
+- 12/5/2024:  
+Timelapse of Florham Park, NJ on 12/3 (various uap “drones”)  
+https://x.com/Tangledtitty/status/1864847397198664092
+
+"Footage found from NJ newspaper, 30mins Timelapse credit to los.neo"
+
+- 12/8/2024:  
+https://x.com/Tangledtitty/status/1865952271340568676  
+
+"Timelapse of Orb UAP’s, Pointed 50mm F0.95 lens at the horizon for 3 hours. Put the most active clip up, About an hours worth of footage sped up to 64x, Using the Sony A7s, the things flying around, It looks like a celestial dance, anyone have any idea what it could be?, “It looks like orbs, but how come they go out of nowhere?”"
 
