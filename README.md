@@ -135,7 +135,7 @@ https://x.com/TheTriggerTrade/status/1867623265469878479,
 12/6/2024: https://x.com/tparon/status/1865173649747017795
 12/14/2024: https://x.com/clovis1931/status/1867883755291250777
 12/7/2024: https://x.com/tparon/status/1865521226283700679
-12/6/2024: twitter New Jersey ~5:30pm, 
+12/6/2024: twitter New Jersey ~5:30pm
 
 Recently received reports from witnessed via DM
 -----------------------------------------------
