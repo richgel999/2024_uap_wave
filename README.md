@@ -3,7 +3,7 @@
 The key clip from Ross Coulthart:  
 https://youtu.be/sucrnlxq8CA
 
-Ross Coulthart: "orbs and spheres are frequently reported... fighter pilots, active service... telling enigma the metallic spheres still continuing... consistent with what AARO told the Pentagon... between Dec. 2022- sept 2024, just under 2 years, 6,226 raw reports, 4,667 approved, total orb or sphere sightings that were submitted to the Enigma Skywatching network.."
+Ross Coulthart: "orbs and spheres are frequently reported... fighter pilots, active service... telling enigma the metallic spheres still continuing... consistent with what AARO told the Pentagon... between Dec. 2022- sept 2024, just under 2 years, 6,226 raw reports, 4,467 approved orb sightings able to confirm were genuine, after drilling 322 metallic orb sightings, they were metallic metal or silver orbs... total orb or sphere sightings that were submitted to the Enigma Skywatching network.."
 
 ----------------
 
