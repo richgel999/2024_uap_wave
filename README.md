@@ -85,8 +85,9 @@ NBC News, 11/27/2024:
 https://www.nbcnews.com/news/world/drones-seen-near-us-bases-uk-air-force-rcna181971
 
 - Wright-Patterson AFB  
-CNN 12/16/2024: : https://www.cnn.com/2024/12/16/us/us-air-force-base-closes-airspace-drone-sightings-hnk/index.html
-Fox News 12/15/2024,  https://x.com/MarianRudnyk/status/1868437099638390857, Fox19 12/16/2024: https://x.com/comlabman/status/1868528813086560369
+CNN 12/16/2024: : https://www.cnn.com/2024/12/16/us/us-air-force-base-closes-airspace-drone-sightings-hnk/index.html  
+Fox News 12/15/2024,  https://x.com/MarianRudnyk/status/1868437099638390857,  
+Fox19 12/16/2024: https://x.com/comlabman/status/1868528813086560369  
 
 - Dec. 12: Picatinny Arsenal NJ  
 CBS News 24/7, https://x.com/aliencoremuzik/status/1867333270192763313
@@ -95,14 +96,14 @@ CBS News 24/7, https://x.com/aliencoremuzik/status/1867333270192763313
 12/3/2024: FAA temporary orders, PIX11: https://x.com/realRJTalks/status/1863963440869417271
 
 - Naval Weapons Station Earle in New Jersey  
-12/12/2024: https://x.com/pkizenko/status/1867344268240564244
+12/12/2024: https://x.com/pkizenko/status/1867344268240564244  
 12/13/2024: ABC News: https://abcnews.go.com/US/multiple-drones-entered-airspace-new-jersey-naval-station/story?id=116763570
 
 - Sensitive nuclear sites in NJ, Salem nuke plant  
 
-12/14/2024: NewsNation
-https://x.com/andadsson/status/1867833994307325960
-https://x.com/Wyntre999/status/1867971611103539641
+12/14/2024: NewsNation  
+https://x.com/andadsson/status/1867833994307325960  
+https://x.com/Wyntre999/status/1867971611103539641  
 
 NY Post, 12/14/2024: https://nypost.com/2024/12/14/us-news/njs-largest-utility-firm-begs-feds-to-shut-down-airspace-over-nuclear-plant-as-mystery-drones-spotted/
 
@@ -138,7 +139,7 @@ https://x.com/TheTriggerTrade/status/1867623265469878479,
 12/7/2024: https://x.com/tparon/status/1865521226283700679
 12/6/2024: twitter New Jersey ~5:30pm
 
-Recently received reports from witnessed via DM
+Recently Received Reports from Witnesses via DM
 -----------------------------------------------
 
 - 12/11/2024: West Gate of Barksdale AFB  
