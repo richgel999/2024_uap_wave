@@ -141,7 +141,7 @@ Recently received reports from witnessed via DM
 -----------------------------------------------
 
 - 12/11/2024: West Gate of Barksdale AFB  
-ex-USAF (1983-2003), 20 years, Ronald Bilak, DD214 provided, address of event and home address provided
+ex-USAF (1983-2003), 20 years, [Ronald Bilak](https://x.com/BilakRonald), DD214 provided and posted on X, address of event and home address provided
 
 - LLNL - nearby, local witnesses, videos  
 “12/10/2024 - Livermore, California about 3 to 4 miles from LLNL -
