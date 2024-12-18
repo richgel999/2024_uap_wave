@@ -191,3 +191,6 @@ https://x.com/TheDeep_State6/status/1866891463080153587
 
 Source: @oeav_, Location: ??New Jersey USA ????, "Motion detected on door cam and started recording.."
 
+---------
+
+Note all the above web sites and videos are backed up. Containment has failed.
