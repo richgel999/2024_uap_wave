@@ -10,6 +10,14 @@ Ross Coulthart: "orbs and spheres are frequently reported... fighter pilots, act
 
 ----------------
 
+Maps from Fox News (12/22/2024 - the [Big Weekend Show](https://x.com/RedPandaKoala/status/1870732924758503666)):
+
+![image](https://github.com/user-attachments/assets/a02ad780-0d6f-4bd4-8344-c78be73f01a3)
+
+![image](https://github.com/user-attachments/assets/ff1409c4-6a07-4f32-9c84-f51f857bf172)
+
+----------------
+
 Ross Coulthart, 12/5/2024, "Video: Mysterious drones swarm military bases, New Jersey skies | Reality Check"  
 https://youtu.be/sucrnlxq8CA
 
