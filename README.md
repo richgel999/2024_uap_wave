@@ -6,7 +6,7 @@ Note: If a URL goes stale, try the archive.ph snapshot.
 The key clip from Ross Coulthart:
 https://youtu.be/sucrnlxq8CA?t=1203
 
-Ross Coulthart: "orbs and spheres are frequently reported... fighter pilots, active service... telling Enigma the metallic spheres still continuing... consistent with what AARO told the Pentagon... between Dec. 2022- sept 2024, just under 2 years, 6,226 raw reports, 4,467 approved orb sightings able to confirm were genuine, after drilling down 322 metallic orb sightings accepted, they were metallic metal or silver orbs... total orb or sphere sightings that were submitted to the Enigma Skywatching network.."
+Ross Coulthart: "orbs and spheres are frequently reported... fighter pilots, active service... telling Enigma the metallic spheres still continuing... consistent with what AARO told the Pentagon... they're appearing between 24,000 and 28,000 feet, which is a lot higher than commercial drones... between Dec. 2022- sept 2024, just under 2 years, 6,226 raw reports, 4,467 approved orb sightings able to confirm were genuine, after drilling down 322 metallic orb sightings accepted, they were metallic metal or silver orbs... total orb or sphere sightings that were submitted to the Enigma Skywatching network.."
 
 ----------------
 
