@@ -190,6 +190,11 @@ https://x.com/Tangledtitty/status/1865952271340568676
 Misc
 ----
 
+- Other recent incidents (past few years):  
+https://www.twz.com/43170/helicopter-chased-eerily-similar-craft-five-years-before-recent-tucson-mystery-drone-incident  
+
+https://www.twz.com/34662/faa-documents-offer-unprecedented-look-into-colorado-drone-mystery
+
 - posted 12/12/2024: BREAKING -An alleged  Glowing orb /Drone /Uap flies by Miami South Beach, Miami balcony a few hours ago.
 It is hard to pull something like this. This is mind boggling.
 -Jessica Leigh
